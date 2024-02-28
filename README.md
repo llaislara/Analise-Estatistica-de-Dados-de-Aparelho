@@ -1,0 +1,1 @@
+# Analise-Estatistica-de-Dados-de-Aparelho
